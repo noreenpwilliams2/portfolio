@@ -20,8 +20,8 @@ I am a dedicated Medical Billing and Coding professional based in Mount Airy, NC
 - Student Member of AHIMA (American Health Information Management Association)
 
 ## 📞 Contact & Connect
-- [Connect on LinkedIn](#) *(Add your LinkedIn URL)*
-- Email: *(Add your email)*
+- [Connect on LinkedIn](https://www.linkedin.com/in/noreenpwilliams)
+- Email: noreenpwilliams@outlook.com
 
 ---
 
