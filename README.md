@@ -1,4 +1,4 @@
-# portfolio 
+# Portfolio 
 Hello! I'm Noreen Williams 👋
 I am a dedicated Medical Billing and Coding professional based in Mount Airy, NC. I am currently pursuing my Associate of Applied Science with a 4.0 GPA and a focus on high-accuracy healthcare documentation.
 
